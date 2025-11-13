@@ -21,7 +21,7 @@
 
 - 📫 How to reach me **soumalyabanik4@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/home](https://drive.google.com/drive/home)
+- 📄 Know about my experiences [https://drive.google.com/file/d/13xk3P12bP637vMm8cquH-BbX2BzE3MKW/view?usp=sharing](https://drive.google.com/drive/home)
 
 - ⚡ Fun fact **I push my GPU harder than my professors push me. 😆**
 
